@@ -1,2 +1,0 @@
-# rusia
-campero xd
